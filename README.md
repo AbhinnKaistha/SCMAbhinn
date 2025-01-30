@@ -2,4 +2,4 @@
 
 # Jai baba ki
 
-# Ayushi ki ma ki
+# Ayushi ki ma ki jai
