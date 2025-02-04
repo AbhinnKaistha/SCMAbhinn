@@ -1,4 +1,4 @@
 # SCMAbhinn
 
-# Jai baba ki
+# अभिन समलैंगिक है
 
