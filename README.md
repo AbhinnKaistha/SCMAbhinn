@@ -1,4 +1,2 @@
-# SCMAbhinn
-
-# opfortopi
+#scm viva
 
